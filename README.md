@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Alessio, aka @guildenstern70
+- 👀 I’m interested in Computer Programming, Cooking, Writing and Gaming
+- 📫 Reach me by visiting https://about.me/alessio.saltarin
